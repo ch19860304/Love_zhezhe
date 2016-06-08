@@ -1,2 +1,2 @@
-# Love_xixi
-We are waiting for you. Come to mama. Better to be a girl.
+# Love_zhezhe
+Thanks for your coming. Mama and dad love you so so so so much. 
